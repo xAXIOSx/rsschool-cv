@@ -1,4 +1,4 @@
-# My name is Dmitriy and Im 16 y.o.
+# My name is Dmitriy and Im 16 y.o
 
 - My [gmail](https://mail.google.com/)
 
